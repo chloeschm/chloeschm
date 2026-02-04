@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently looking for a specific path that interests me. I've been working on things to help people that I know, such as building a website for them, a simple puzzle game for their boyfriend/girlfriend, a cute todo list, and a password manager. I'm always looking to help out and for more projects. I love all things video games, music, traveling, and you can usually find me at work or in bed watching Bob's Burgers while working on a project.
+I'm currently looking for a specific path that interests me; I've been working on things to help people that I know, such as building a website for them, a simple puzzle game for their boyfriend/girlfriend, a cute todo list, and a password manager. I'm always looking to help out and for more projects. I love all things video games, music, traveling, and you can usually find me at work or in bed watching Bob's Burgers while working on a project :p
 
 
 ## 🌐 Socials:
